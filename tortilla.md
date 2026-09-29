@@ -14,3 +14,4 @@
 2. Freir las patatas y la cebolla en aceite de oliva hasta que esten doradas. 
 3. Batir los huevos con sal 
 4. A¤adir las patatas y la cebolla a los huevos batidos. 
+5. Cocinar en una sarten hasta que este cuajada. 
